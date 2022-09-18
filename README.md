@@ -3,9 +3,10 @@
           - Learning new things 🆕
           - Tech and almost all things related to it 📱
           - Basketball🏀
+          - Boxing 🥊
           - Reading 📚
 - 🌱 I’m currently learning 
-          - Many different stuff while being an Intern
+          - working on my final year research
 - 📫 How to reach me 
           - Email - yaish.riaz@gmail.com
           - LinkedIn - www.linkedin.com/in/yaish-riaz-231556183
